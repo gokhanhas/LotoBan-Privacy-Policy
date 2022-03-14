@@ -1,4 +1,4 @@
-# LotoBan-Privacy-Policy
+# LotoBan Privacy Policy
 **Privacy Policy**
 
 Rastaban built the LotoBan app as a Free app. This SERVICE is provided by Rastaban at no cost and is intended for use as is.
