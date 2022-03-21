@@ -62,4 +62,4 @@ This policy is effective as of 2022-03-14
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at teamrastaban@protonmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at privacy-policy@teamrastaban.com.
